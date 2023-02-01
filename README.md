@@ -1,3 +1,4 @@
 # WELCOME EVERYONE
 ###### My name is louis, I am a 21 year old boy
-![me] https://pps.whatsapp.net/v/t61.24694-24/208942548_989863748519187_8125491748310333310_n.jpg?ccb=11-4&oh=01_AdQJBUA9Ex9avCUYRm1OOLlI2HPS0prf4S3xZ9JuqAljRQ&oe=63E784DC
+![208942548_989863748519187_8125491748310333310_n](https://user-images.githubusercontent.com/124163712/216062454-7d69f251-3a85-413d-be7c-c4613614b156.jpg)
+
